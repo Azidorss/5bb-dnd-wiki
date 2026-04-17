@@ -1,0 +1,1 @@
+Dungeons and Dragons, commonly known as D&D, is a fantasy tabletop roleplaying game published by Wizards of the Coast LLC. The fifth edition of the game is featured on [[5pee But Big DND]]. 
