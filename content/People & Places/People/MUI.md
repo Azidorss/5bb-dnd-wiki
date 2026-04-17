@@ -15,3 +15,5 @@ MUI (also known as "MUI_GokuDBZ") is a founding member of [[5BB Productions]]. H
 He portrays the title character in _Sid Man_.
 
 In Campaign One, MUI played the character Sonic The Hedgehog 3 Watch In Theatres.
+
+He is very stinky.
