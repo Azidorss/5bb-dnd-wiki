@@ -5,14 +5,14 @@
 > | Airdate | 2026-03-08 17:20 SGT |
 > | Running time | 3:30:00 |
 > ###### Starring
-> [[MUI]] - [[Grimwald Von Tutu]]
-> [[Jan]] - John Smith
-> [[ZR]] - Hermes
-> [[Drill]] - Drittle
-> [[Bird]] - Edwin Durland
-> [[PZShatter]] - Draek Edoric
-> [[YJ]] - Matt Murdock
-> [[Kliorz]] - Volshit
+> [[MUI]] - [[Grimwald Von Tutu]],
+> [[Jan]] - John Smith,
+> [[ZR]] - Hermes,
+> [[Drill]] - Drittle,
+> [[Bird]] - Edwin Durland,
+> [[PZShatter]] - Draek Edoric,
+> [[YJ]] - Matt Murdock,
+> [[Kliorz]] - Volshit,
 > [[Trip]] - Yoo "Lavinia" Jaehyuk
 > and
 > [[Azidorss]] as the Dungeon Master
