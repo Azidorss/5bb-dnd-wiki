@@ -3,10 +3,10 @@
 > ![[ZR Poster.jpg|250]]
 > [[ZR Poster 1.jpg| Promotional Poster for the cast reveal of Campaign Two]]
 > ###### General Information
-> | Full Name | Wang Zhao Rui |
+> | Full Name | LuckiestOfTacos |
 > | ---- | ---- |
 > | Pronouns | snow/man |
-> | Born | March 4, 2011 (age 15) Singapore |
+> | Born | March 4 |
 > | Ethnicity | Chinese |
 > | 5BB Works | LuckiestOfTacos (YT), Azidorss (YT), Sid Man, Campaign One: Drills Bullshit, [[Campaign Two 5BB The World Blooms]] 
 

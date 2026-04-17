@@ -3,10 +3,10 @@
 > ![[Trip Poster.jpg|250]]
 > [[Trip Poster 1.jpg| Promotional Poster for the cast reveal of Campaign Two]]
 > ###### General Information
-> | Full Name | Trip Lexz Contreras |
+> | Full Name | Trip |
 > | ---- | ---- |
 > | Pronouns | he/him |
-> | Born | July 20, 2008 (age 17) Philippines |
+> | Born | July 20 |
 > | Ethnicity | Filipino |
 > | 5BB Works | [[Campaign Two 5BB The World Blooms]] |
 

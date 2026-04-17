@@ -3,10 +3,10 @@
 > ![[Bird Poster.jpg|250]]
 > [[Bird Poster 1.jpg| Promotional Poster for cast reveal of Campaign Two]]
 > ###### General Information
-> | Full Name | Faith Yeo |
+> | Full Name | Bird |
 > | ---- | ---- |
 > | Pronouns | brother/noah |
-> | Born | October 22, 2011 (14) Singapore |
+> | Born | October 22 |
 > | Ethnicity | Chinese |
 > | 5BB Works | Definitions (YT), Legends of Speed (I was so fast), Sid Man, Campaign One: Drills Bullshit, [[Campaign Two 5BB The World Blooms]] |
 

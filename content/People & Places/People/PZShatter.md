@@ -3,10 +3,10 @@
 > ![[PZ Poster.jpg|250]]
 > [[PZ Poster 1.jpg| Promotional Poster for the cast reveal of Campaign Two]]
 > ###### General Information
-> | Full Name | Dylan Simon Tomboc "Ling" Pasco |
+> | Full Name | PZShatter |
 > | ---- | ---- |
 > | Pronouns | he/him |
-> | Born | March 10, 2010 (age 16) Philippines |
+> | Born | March 10 |
 > | Ethnicity | Filipino |
 > | 5BB Works | Campaign One: Drills Bullshit, [[Campaign Two 5BB The World Blooms]] |
 
